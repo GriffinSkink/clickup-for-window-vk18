@@ -1,4 +1,4 @@
-# 
+# new OneNote for Windows Addon | cloud-sync + collaboration offers the most advanced OneNote for Windows addon, with cloud-sync and collaboration. Ideal for Windows professionals.
 
 
 
